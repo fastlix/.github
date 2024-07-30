@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-![image](https://github.com/user-attachments/assets/d4ee5748-5c5b-4241-84a5-aa3175fd83cd)
+![image](https://github.com/user-attachments/assets/637864a6-3510-4fe7-8518-f65c8e2aa5c4)
 
 <!--
 
